@@ -25,6 +25,6 @@
 如果你在找一个真正免费的、不卡顿的日本AV免费平台，不妨收藏这些站点。资源多，播放稳，体验好，是追片爱好者的绝佳选择。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/DV20250707/DV10 ）</span>
 
 
